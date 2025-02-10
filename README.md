@@ -12,7 +12,6 @@
 
 - 📫 How to reach me **krishnapadaliya011@gmail.com**
 
-- 📄 View My Resume https://me-qr.com/llP9qPT0
 
 
 
